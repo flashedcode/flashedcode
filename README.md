@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @flashedcode
 - 👀 I’m interested in Coding, gaming and idk pe?
-- 🌱 I’m currently learning uk curruculum
+- 🌱 I’m currently learning to breath
 - 💞️ I’m looking to collaborate on code i guess???
 - 📫 How to reach me talk2ryantom@outlook.com , ryanboitom@gmail.com or hiryantom@gmail.com
 - 😄 Pronouns: he cus im not him 🗿
